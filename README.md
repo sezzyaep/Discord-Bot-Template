@@ -1,2 +1,1 @@
-Nemesisssssssss
-=================
+Eski Bir Discord Altaypısı
